@@ -1,0 +1,10 @@
+1.Blend the mango in blender;
+2.add mint and ginger to the juice ;
+3.add coconut water and lemon juice it will increase nutrients to juice;
+4.if you want to make the mango juice different from others add orange juice;
+5.peel the oranges and remove seeds from oranges ;
+6.chop the oranges ;
+7.this combo will give you a flavour of orange in mango juice;
+8.add the chopped oranges  to mango juice and blend ;
+9.pour it into a jar;
+10.drink the juice and enjoy the real taste of nature;
